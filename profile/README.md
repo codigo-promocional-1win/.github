@@ -28,7 +28,7 @@ Clique no botão abaixo — o **código promocional 1win** será aplicado automa
 
 Depois é só seguir estes passos simples:
 
-1. Abrir o site oficial ou **espelho 1win atualizado**.  
+1. Abrir o site oficial **1win**.  
 2. Clicar em **Cadastro**.  
 3. Preencher seus dados (e-mail, telefone, senha etc.).  
 4. Conferir se o campo **“Código promocional”** está com `YOU2` (ou digitar manualmente).  
